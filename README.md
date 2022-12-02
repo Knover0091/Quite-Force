@@ -1,4 +1,4 @@
-This is not Hacking Repository, this just for fun and educational only. Any violence because of this type, is beyond my responsibility
+This is for fun and educational purpose only. Any violence of this type, is beyond my responsibility
 Be carefull!
  Version: 1.0
  
